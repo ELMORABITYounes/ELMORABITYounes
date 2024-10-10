@@ -3,7 +3,7 @@
 
 #### Want to Connect?
 
-- [Linkedin](www.linkedin.com/in/younes-elmorabit)
+- [Linkedin](https://www.linkedin.com/in/younes-elmorabit)
 - [twitter](https://twitter.com/almoravid96)
   
 
