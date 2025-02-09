@@ -4,7 +4,7 @@
 #### Want to Connect?
 
 - [Linkedin](https://www.linkedin.com/in/younes-elmorabit)
-- [twitter](https://twitter.com/almoravid96)
+- [medium](https://medium.com/@yelmorabit)
   
 
 <!---
